@@ -1,2 +1,2 @@
-https://github.com/user-attachments/assets/8084469d-357b-4ff9-a423-f588a44745de
+<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/a61a578b-2ea5-4833-bce2-9708473607f7" />
 havent found a soul mate yet? ദ്ദി◝ ⩊ ◜.ᐟ (2in)
