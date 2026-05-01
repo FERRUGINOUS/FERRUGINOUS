@@ -2,4 +2,4 @@
 havent found a soul mate yet? dw, me2 ദ്ദി◝ ⩊◜.ᐟ 
 _ . . . _
 
-(っ˶ ˘ ᵕ˘) sign my ata if u dont mind:3 ╰┈➤ˎˊ˗ <a href="https://hawkinn.atabook.org" target="_blank">ata</a>
+(っ˶ ˘ ᵕ˘) sign my atabewk if u dont mind:3 ╰┈➤ˎˊ˗ <a href="https://hawkinn.atabook.org" target="_blank">ata</a>
